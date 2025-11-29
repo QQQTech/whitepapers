@@ -1,1 +1,1 @@
-To record new ideas on things that matter, updated 11/29/2025
+To record new ideas on things that matter, updated 11/29/2025, by Rujing Tang.
